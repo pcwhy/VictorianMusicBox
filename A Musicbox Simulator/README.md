@@ -13,3 +13,9 @@ https://www.youtube.com/watch?v=I-d_9-MD8Ls
 https://www.youtube.com/watch?v=I5SBzadfmd8
 
 https://www.youtube.com/watch?v=y6rdLsp_034
+
+这个几个视频能很好的帮你理解midi究竟是什么，其实就不是新技术，而是19世纪mechanical music玩剩下的：
+
+https://www.youtube.com/watch?v=qDEL5h0dO7A
+
+https://www.youtube.com/watch?v=qewdC3hX4iQ
