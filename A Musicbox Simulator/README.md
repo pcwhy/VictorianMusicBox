@@ -18,6 +18,12 @@ https://www.youtube.com/watch?v=UDZLJrdsQos
 
 https://www.youtube.com/watch?v=Om8zskXPhr8
 
+淡然，凡事都有个度，装饰音太多了听起来反倒不太妙，下面两个版本的Grand March from Aida就有明显区别：
+
+https://www.youtube.com/watch?v=WG5v3KUcqh4
+
+https://www.youtube.com/watch?v=heJjVphwmtQ
+
 这个几个视频能很好的帮你理解midi究竟是什么，其实就不是新技术，而是19世纪mechanical music玩剩下的：
 
 https://www.youtube.com/watch?v=qDEL5h0dO7A
