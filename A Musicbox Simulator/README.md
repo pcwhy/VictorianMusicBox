@@ -8,11 +8,15 @@ https://www.youtube.com/watch?v=FwaEk3sLyEE
 
 https://www.youtube.com/watch?v=I-d_9-MD8Ls
 
-如果要理解颤音与装饰音这些古典八音盒特有的音效，建议看着几个：
+如果要理解颤音与装饰音这些古典八音盒特有的音效，建议看着几个，注意听主旋律音符附近的装饰音：
 
 https://www.youtube.com/watch?v=I5SBzadfmd8
 
 https://www.youtube.com/watch?v=y6rdLsp_034
+
+https://www.youtube.com/watch?v=UDZLJrdsQos
+
+https://www.youtube.com/watch?v=Om8zskXPhr8
 
 这个几个视频能很好的帮你理解midi究竟是什么，其实就不是新技术，而是19世纪mechanical music玩剩下的：
 
